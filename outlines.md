@@ -92,6 +92,12 @@ what to do during breaks
 Productivity, Stress
 
 
+###Neuroplasticity:###
+Talk about how directing our attention facilitates
+changes in the brain. The neurobiology of the desklife.
+We have habits and stress responses that we can
+modify. An important first step is to be able to monitor
+these processes.
 
 
 
